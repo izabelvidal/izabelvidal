@@ -11,7 +11,7 @@ English -> 🇬🇧  <br>
 Swedish -> 🇸🇪  <br>
 German -> 🇩🇪  <br>
 
-In my free time i like to study new languages 📜, wacth movies and tv series 🎞️, play with my cats 🐱, try to learn how to play guitar 🎸, and the most important, besides sleeping 💤, listing to musica and dancing 🎶. Some of friends would say i'm a great cooker, they're totally right!!!
+In my free time i like to study new languages 📜, wacth movies and tv series 🎞️, play with my cats 🐱, try to learn how to play guitar 🎸, and the most important, besides sleeping 💤, listing to music and dancing 🎶. Some of friends would say i'm a great cooker, they're totally right!!!
 
 🌟Come check me out on my socials...🌟
 
