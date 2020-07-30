@@ -5,7 +5,7 @@
 
 My name is Felipe Fialho from Brazil (🇧🇷). I've been trying to be a web developer since 2017, since then i also have been trying to get a degree in computer science 💻. I'm passionate with web development since 2015. I'm a person that don't quit easely. My goal is get to know and work around the whole world 🌎. New Zealand 🇳🇿  is the first country that I've ever met.
 
-I speake four languages:
+I speake four languages: <br>
 Portuguese -> 🇧🇷 <br>
 English -> 🇬🇧  <br>
 Swedish -> 🇸🇪  <br>
